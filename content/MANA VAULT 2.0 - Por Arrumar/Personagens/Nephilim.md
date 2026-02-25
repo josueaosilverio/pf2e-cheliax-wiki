@@ -1,0 +1,16 @@
+Ex Hellknight da primeira Ordem da Cruz
+Encontrado por nós na prisão de Yvan, este mantinha uma vida calma e serena como prisioneiro, portador de informações fundamentais sobre os hellknights, e sobre acontecimentos históricos no reino de cheliax. 
+
+Num primeiro momento o mesmo mostrou-se cético sobre apoiar a causa porém foi convencido a cooperar na promessa de lhe ser apresentado um plano consistente. 
+
+Aparentemente neutro em relação ao conflito, afirma crer que não há possibilidades de uma mudança no status-quo do reino de cheliax, apenas um plano de melhoria significativa e restruturação do modo de vida do reino o faria apoiar a causa. 
+
+**NOTA**
+Personagem neutro capaz de ter informações massivas sobre os mortos vivos na torre de criação dos Hellknights, e pode ter informações sobre como aceder a escadaria infernal do arquivo dos contratos infernais. 
+
+**QUESTÕES IMPORTANTES**
+-Porque ele foi o único da sua ordem que sobreviveu ao massacre dos primeiros hellknights da ordem da cruz pela casa Thrune?
+-Porque manter o mesmo vivo se a ordem dos Thrune era matar a todos?
+-Ate que ponto ele mantém um possível acordo com os hellknights ou com Yvan?
+-Há alguma possibilidade dele ser um Thrune?
+![[IMG-20260224-WA0006.jpg]]
