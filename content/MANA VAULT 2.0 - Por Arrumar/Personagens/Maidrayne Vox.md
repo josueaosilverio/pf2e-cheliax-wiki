@@ -1,2 +1,0 @@
-Hellknights Centauro Meste das lâminas da Ordem do Prego
-Sabemos que é irmã de Menamyn, aliciada pelos hellknights, não temos muito mais informações do seu alinhamento nem do seus objetivos.![[IMG-20260224-WA0004.jpg]]
