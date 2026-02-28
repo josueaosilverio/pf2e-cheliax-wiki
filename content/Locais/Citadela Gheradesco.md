@@ -1,6 +1,6 @@
 >Quartel General: Ordem da Corrente
 
-Ordem de [[hellknights]] focada em caçar e prender os criminosos mais procurados de [[Cheliax]], também acreditam que todos devem ser úteis e todos aqueles que não são úteis devem ser descartados. 
+Ordem de [[Hellknights]] focada em caçar e prender os criminosos mais procurados de [[Cheliax]], também acreditam que todos devem ser úteis e todos aqueles que não são úteis devem ser descartados. 
 
 Aparentam ser uma ordem policial e de captura direta em [[Cheliax]]. 
 

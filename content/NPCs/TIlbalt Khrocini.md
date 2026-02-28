@@ -2,7 +2,7 @@
 
 ![[IMG-20260224-WA0008.jpg|400]]
 
-Politico corrupto, que está pouco se lixando para o seu povo, sofre pressão constante na cidade por conta da sua incompetência dos [[hellknights]] da ordem da Chain. 
+Politico corrupto, que está pouco se lixando para o seu povo, sofre pressão constante na cidade por conta da sua incompetência dos [[Hellknights]] da [[Citadela Gheradesco|Ordem da Corrente]]. 
 
 O Homem aparenta ser de fácil acesso se os assuntos forem de seu interesse político, é um indivíduo glutão e ostentador, enquanto esbanja o dinheiro do império e da cidade em jantares e recursos, o povo que governa vive na miséria e na opressão. 
 

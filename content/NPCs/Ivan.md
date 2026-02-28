@@ -1,4 +1,4 @@
->Poderoso [[Hellknights|Hellknight]], Lictor da ordem do Rack
+>Poderoso [[Hellknights|Hellknight]], Lictor da [[Citadela Rivad|Ordem do Rack]]
 
 ![[IMG-20260223-WA0024.jpg|400]]
 

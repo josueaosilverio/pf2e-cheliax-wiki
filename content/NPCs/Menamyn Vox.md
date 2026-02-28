@@ -7,4 +7,4 @@ Pouco sabemos sobre o viés e os interesses da personagem. Porém sabemos que de
 A centauros mantém uma postura de autoridade dentro da tribo, e a sua voz é ouvida pelos outros membros. 
 
 ## Notas
-- Aparenta ser um poderoso aliado caso consigamos propor um acordo muito bom e resolver a pressão dos hellknights (através da irmã [[Maidrayne Vox|Maidrayne]]), que está a atribular a tribo. 
+- Aparenta ser um poderoso aliado caso consigamos propor um acordo muito bom e resolver a pressão dos [[Hellknights]] (através da irmã [[Maidrayne Vox|Maidrayne]]), que está a atribular a tribo. 
