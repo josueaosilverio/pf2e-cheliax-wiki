@@ -1,3 +1,7 @@
+---
+aliases:
+  - Ordem da Pira
+---
 >Quartel General: Ordem da Pira
 
 Ordem de [[Hellknights]] especializada em acabar com religiões fora do escopo do império. 

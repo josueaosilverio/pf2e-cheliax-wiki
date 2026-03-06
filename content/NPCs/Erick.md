@@ -6,7 +6,7 @@ Porta grandes informações sobre os pactos e procedimentos dos [[Thrune]] que o
 
 Abandonou a ordem depois da descoberta que, os [[Thrune]] mantêm as casa nobres reféns através de um pacto de vigilância constante e de envio dos primogénitos nobres para a [[Igreja de Asmodeus]].
 
-Fazia parte da ordem do [[Ivan]].
+Fazia parte da [[[Citadela Rivad|Ordem do Rack]].
 
 O personagem apresentou extrema prestatividade com a causa, cedendo as informações que tinha de forma deliberada. 
 

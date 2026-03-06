@@ -1,3 +1,7 @@
+---
+aliases:
+  - Ordem do Rack
+---
 >Quartel General: Ordem do Rack
 
 Ordem de [[Hellknights]] especializada em eliminar propaganda, controlo de massas e de gestão de inteligência. 

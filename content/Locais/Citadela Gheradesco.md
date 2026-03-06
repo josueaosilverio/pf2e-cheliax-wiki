@@ -1,3 +1,7 @@
+---
+aliases:
+  - Ordem da Corrente
+---
 >Quartel General: Ordem da Corrente
 
 Ordem de [[Hellknights]] focada em caçar e prender os criminosos mais procurados de [[Cheliax]], também acreditam que todos devem ser úteis e todos aqueles que não são úteis devem ser descartados. 

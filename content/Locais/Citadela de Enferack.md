@@ -1,3 +1,7 @@
+---
+aliases:
+  - Ordem do Portão
+---
 >Quartel General: Ordem do Portão 
 
 Ordem de [[Hellknights]] especializada em invocações infernais, estabelecimento de contratos. 

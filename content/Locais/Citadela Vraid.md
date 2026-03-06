@@ -1,3 +1,7 @@
+---
+aliases:
+  - Ordem do Prego
+---
 >Quartel General: Ordem do Prego
 
 Perto de [[Kintargo]]
