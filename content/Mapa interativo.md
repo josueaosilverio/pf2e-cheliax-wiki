@@ -1,7 +1,6 @@
 ---
 draft: true
 ---
-```
 ```leaflet
 id: cheliax-map
 image: [[Mapa.jpeg]]

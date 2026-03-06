@@ -6,6 +6,12 @@ Aparentam ser uma ordem policial e de captura direta em [[Cheliax]].
 
 São aliados com a [[Citadela Demain|Ordem do Flagelo]].
 
+Têm uma prisão de alta segurança com pocket dimensions, onde mantêm os prisioneiros.
+
+Trabalham pelo lucro, são caçadores de recompensas.
+
+Conseguem abrir portais.
+
 ## Notas
 - A ordem tem um projeto de interferência em [[Westpool]], no qual querem transformar a cidade num centro produtivo para o império, assim tornando a cidade numa capital de produção e logística do império.
 - Ainda não sabemos o que almejam alcançar com esse projeto, pode ser influência dentro do império ou então pode ser um poder acima de todas as outras ordens, ou em último caso, para fins puramente ideológicos. 

@@ -6,6 +6,8 @@ Porta grandes informações sobre os pactos e procedimentos dos [[Thrune]] que o
 
 Abandonou a ordem depois da descoberta que, os [[Thrune]] mantêm as casa nobres reféns através de um pacto de vigilância constante e de envio dos primogénitos nobres para a [[Igreja de Asmodeus]].
 
+Fazia parte da ordem do [[Ivan]].
+
 O personagem apresentou extrema prestatividade com a causa, cedendo as informações que tinha de forma deliberada. 
 
 Erick salvou uma menina de uma casa nobre do cativeiro [[Thrune]], além disso ele tem todas as informações do local. 
@@ -18,5 +20,8 @@ Informou-nos que:
 	- Estão disfarçados de acólitos para não levantar suspeitas
 - Sofrem uma lavagem cerebral para serem fieis ao império
 - Existe um plano para ir trocando os líderes de cada casa pelos filhos após a lavagem cerebral para os [[Thrune]] deterem controlo total das casas
+
+O [[Ivan]] mandou matar a criança que ele resgatou como castigo porque a [[Casa Fecks]] foi contra o império.
+O Erick recusou e fugiu com a criança. Se a criança sobreviver o resto da casa é morta por heresia, provavelmente.
 ## Alertas
 O personagem é uma pessoa de extrema importância para os [[Thrune]], com certeza a sua segurança será um desafio tremendo. 
