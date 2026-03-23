@@ -1,6 +1,7 @@
 ---
 aliases:
   - Egorian
+title: Egorian
 ---
 >Capital do Império
 

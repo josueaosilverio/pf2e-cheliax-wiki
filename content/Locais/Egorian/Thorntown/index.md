@@ -1,6 +1,7 @@
 ---
 aliases:
   - Thorntown
+title: Thorntown
 ---
 Funciona como um distrito neutro onde são feitos acordos legais. É um local reconhecido pelo império para que diplomatas se possam encontrar.
 

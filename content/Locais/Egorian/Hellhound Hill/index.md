@@ -1,6 +1,7 @@
 ---
 aliases:
   - Hellhound Hill
+title: Hellhound Hill
 ---
 Neste lugar encontramos a maior catedral da [[Igreja de Asmodeus]].
 

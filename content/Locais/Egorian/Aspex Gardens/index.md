@@ -1,6 +1,7 @@
 ---
 aliases:
   - Aspex Gardens
+title: Aspex Gardens
 ---
 Jardins muito bem cuidados na entrada da cidade.
 

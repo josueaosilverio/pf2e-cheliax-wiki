@@ -1,6 +1,7 @@
 ---
 aliases:
   - The Vice
+title: The Vice
 ---
 Distrito pobre com muitos escravos.
 
