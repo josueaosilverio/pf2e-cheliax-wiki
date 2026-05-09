@@ -1,4 +1,10 @@
 
+>🏗️ Em construção
+
+# Notas Passadas
+
+>✔️ Conseguimos vencer o caso em tribunal
+
 Estamos acusados pelo Ivan de:
 - Culto sem direito legal e sem registro
  Nenhum de nós é propriamente seguidor de Iomedai. Nem existem registos de adoração, apenas estivemos em conversas em que o tema de Iomedai apareceu, e isso não é culto.

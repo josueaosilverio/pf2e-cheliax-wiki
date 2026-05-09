@@ -4,6 +4,8 @@ aliases:
 ---
 >Quartel General: Ordem do Flagelo 
 
+>❗ A ordem foi dizimada após o julgamento e a sua presença foi substituída pela Ordem do Prego
+
 Ordem de [[Hellknights]] especializados em manobras de anti-corrupção, provavelmente têm controlo administrativo sobre certas questões do império, devem ter acesso a advogado e a diplomatas, tal como também devem fazer trabalho fiscal pesado. 
 
 Têm uma relação difícil com os [[Thrune]], que os querem destuir.
