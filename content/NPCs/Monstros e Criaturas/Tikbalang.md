@@ -1,4 +1,5 @@
 ![[Tikbalang.png|400]]
+
 Criatura da floresta que faz com que os trabalhadores se percam e que tenta proteger [[Barrowood]].
 
 Após conversar percebemos que tenta fazer com que o exercito do Ivan se perca mas graças ao [[Harmona]] que ele capturou consegue sempre escapar às ilusões do Tikbalang
